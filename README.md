@@ -2,9 +2,9 @@
   <img width="500" height="350" src="https://64.media.tumblr.com/34a603fadbd01228a1abe880f702f89e/2d79bddf0a1c7792-3a/s540x810/1f53fd30b3cb80dab9f5a67fc7cd056eb695f29f.pnj">
 </p>
 
-${\textsf{\color{#967673}16}}$
+${\textsf{\color{#967673}-18}}$
 
-${\textsf{\color{#643820}ENTP 7w6}}$
+${\textsf{\color{#643820}ENFP 9w3}}$
 
 ${\textsf{\color{#9B6528}}}$</a> ${\textsf{\color{#FAF0DE}∶}}$ ${\textsf{\color{#BF584D}links soon}}$
 </a>
